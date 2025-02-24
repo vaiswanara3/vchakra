@@ -1,0 +1,2 @@
+# vchakra
+VIVAAHA DIRECTION CHAKRA
